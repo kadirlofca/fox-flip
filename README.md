@@ -1,5 +1,4 @@
-![Generated Image February 06, 2026 - 9_49PM](https://github.com/user-attachments/assets/d370c323-c6e1-4a46-b8f0-605d4162860b)
-
+<img width="1152" height="928" alt="foxfliptitle" src="https://github.com/user-attachments/assets/f00dec5e-62da-4b1f-9d44-d7e752a65c49" />
 
 ---
 
